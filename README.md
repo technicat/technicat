@@ -1,4 +1,4 @@
-### Hi there 👋 My resume is [here](http://philipchu.com/)
+### Hi there 👋 My resume is [here](http://philipchu.com/). Check out my [photos](https://unsplash.com/@technicat).
 <!--
 **technicat/technicat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
