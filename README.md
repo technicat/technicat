@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+My resume is [here](http://philipchu.com/)
 <!--
 **technicat/technicat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
