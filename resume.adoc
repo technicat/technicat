@@ -6,7 +6,7 @@ endif::[]
 
 = Résumé of Phil Chu
 
-image:https://github.com/technicat/technicat/blob/master/images/tahoe.jpg[]
+image:tahoe.jpg[]
 
 The dogs in the photo aren't mine.
 
