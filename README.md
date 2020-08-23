@@ -1,4 +1,4 @@
-Hi there 👋 Check out my [résumé](http://philipchu.com/) and [photos](https://unsplash.com/@technicat) and [writing](https://github.com/technicat/technicat-on-software/)
+Hi there 👋 Check out my [résumé](http://philipchu.com/) and [photos](https://unsplash.com/@technicat) and [writing](https://github.com/technicat/technicat-on-software/) and [podcast](https://gamedevslikeyou.libsyn.com/phil-chu)
 <!--
 **technicat/technicat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
