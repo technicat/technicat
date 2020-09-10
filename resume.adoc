@@ -22,7 +22,7 @@ _2002- Las Vegas, Nevada_
 Currently on the https://apps.apple.com/us/developer/technicat-llc/id295241742[App Store], a licensed http://unity3d.com/[Unity] reimplementation of the http://hyperbowl.rocks[HyperBowl] arcade/attraction game, and the http://talkdimsum.com/[Talk Dim Sum] food and language app written in https://swift.org/[Swift].
 
 image:hyperbowlforest.png[Hyperforest,80,110]
-image:talkdimsummockup.png[talkdimsum,80,110]
+image:talkdimsummockup.png[talkdimsum,70,110]
 
 Other self-published apps and games are on http://technicat.itch.io[itch.io] and https://store.steampowered.com/app/847530/HyperBowl/[Steam].
 
