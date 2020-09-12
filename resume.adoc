@@ -46,11 +46,11 @@ Collaborated on projects for clients, including:
 
 image:wordseye.png[Wordseye,130,100]
 image:cinefex.jpeg[Cinefex,130,100]
-image:images/darkwatch.jpg[Darkwatch,70,100]
-image:images/techdeck.jpg[TD,130,100]
-image:images/emoray.png[emoray,120,100]
-image:images/nendo-modeling.jpg[nendo,120,100]
-image:images/bluemarsgolf.png[bluemars,120,100]
+image:darkwatch.jpg[Darkwatch,70,100]
+image:techdeck.jpg[TD,130,100]
+image:emoray.png[emoray,120,100]
+image:nendo-modeling.jpg[nendo,120,100]
+image:bluemarsgolf.png[bluemars,120,100]
 image:apress.jpg[Apress,70,100]
 
 === Hyper Entertainment
