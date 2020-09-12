@@ -33,7 +33,7 @@ Collaborated on projects for clients, including:
 
 - https://apps.apple.com/us/app/cinefex/id512379220[Cinefex iPad Edition], the digital version of the http://cinefex.com/[Cinefex] visual effects magazine
 - The iOS app for http://www.wordseye.com/[WordsEye], a text-to-3D natural language graphics generation system, on the App Store for two years
-- App prototyping and and consulting for https://www.nextdigital.com.hk/[Next Digital], traveled to Hong Kong and Budapest
+- App prototyping and and consulting for https://www.nextdigital.com.hk/[Next Digital], visited teams in Hong Kong and Budapest
 - https://pshome.fandom.com/wiki/RC_Rally[RC Rally] and https://www.playstation.com/en-us/games/emo-ray-vs-the-intergalactic-teddy-bears-ps3/[Emo-Ray vs. the Intergalactic Teddy Bears] on https://en.wikipedia.org/wiki/PlayStation_Home[Playstation Home] by Heavy Water
 - The https://en.wikipedia.org/wiki/Blue_Mars_(video_game)[Blue Mars] virtual world by https://en.wikipedia.org/wiki/Avatar_Reality[Avatar Reality] built with http://cryengine.com/[CryEngine]
 - The Genesys call center management software for Magnasync
