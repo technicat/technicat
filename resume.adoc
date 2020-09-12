@@ -46,7 +46,7 @@ Collaborated on projects for clients, including:
 
 image:wordseye.png[Wordseye,130,100]
 image:cinefex.jpeg[Cinefex,130,100]
-image:darkwatch.jpg[Darkwatch,70,100]
+image:Darkwatch.jpg[Darkwatch,70,100]
 image:techdeck.jpg[TD,130,100]
 image:emoray.png[emoray,120,100]
 image:nendo-modeling.jpg[nendo,120,100]
