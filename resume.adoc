@@ -151,4 +151,6 @@ _1984 Iowa City, Iowa_
 image:westhigh.jpg[West,100,100]
 image:hacker.jpg[Berkely,100,100]
 
+image:computermuseumnarrow.jpeg[]
+
 
