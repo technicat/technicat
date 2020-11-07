@@ -1,2 +1,2 @@
-This election has me so stressed, I'm drinking coffee to calm down.
+I'm off twitter, so random thoughts go here.
 
