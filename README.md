@@ -1,2 +1,1 @@
-I still check twitter, to remind myself why I left.
-
+I can't believe forty-eight percent of you voted for that idiot.
