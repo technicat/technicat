@@ -1,1 +1,1 @@
-App store streamlining, unpublished from the Microsoft Store, now I'm just on the App Store, Steam, and Itch.io.
+I don't have a tech stack, it's more like a heap.
