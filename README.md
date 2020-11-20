@@ -1,1 +1,4 @@
-Sometimes I miss twitter but then I check on it and I don't.
+I'm no longer on twitter but still checking feeds, currently:
+
+[Amy Chu](https://twitter.com/AmyChu)
+[Steve Sisolak](https://twitter.com/SteveSisolak)
