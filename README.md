@@ -1,2 +1,2 @@
 
-Currently coding apps with [flutter](https://flutter.dev), [swift](https://swift.org/), and [objective-c](https://developer.apple.com/library/archive/documentation/Cocoa/Conceptual/ProgrammingWithObjectiveC/Introduction/Introduction.html)...older stuff is on my [résumé](http://philipchu.com/). I pinned my most popular (one star or more!) repos, but there's a more organized [list](https://philchu.ghost.io/open-source/).
+I pinned my most popular (one star or more!) repos, but there's a more organized [list](https://philchu.ghost.io/open-source/). Current and past projects are on my [résumé](http://philipchu.com/). 
