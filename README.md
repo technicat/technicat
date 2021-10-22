@@ -1,1 +1,1 @@
-Read me? Read you!
+Git your own hub!
