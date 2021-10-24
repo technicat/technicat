@@ -1,1 +1,1 @@
-Git your own hub!
+I'm around on [technicat.com](http://technicat.com/), [fugugames.com](http://fugugames.com/), [hyperbowl.rocks](http://hyperbowl.rocks/), [pc.cafe](http://pc.cafe/), and [philipchu.com](http://philipchu.com/)
