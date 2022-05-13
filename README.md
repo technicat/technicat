@@ -1,1 +1,1 @@
-I'm selling my place, which leads me to wonder: why don't realtors bother to knock, were they raised in a barn?
+I know I’ve made some very poor decisions recently, but I can give you can give you my complete assurance that my work will be back to normal. - [HAL 9000](https://hal9000computer.wordpress.com/2017/11/22/all-hal-9000-phrases-from-the-movie/)
