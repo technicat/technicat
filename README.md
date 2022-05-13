@@ -1,1 +1,1 @@
-[![Stand With Ukraine](https://raw.githubusercontent.com/vshymanskyy/StandWithUkraine/main/banner2-direct.svg)](https://vshymanskyy.github.io/StandWithUkraine)
+Thought of the day: why don't realtors bother to knock, were they raised in a barn?
