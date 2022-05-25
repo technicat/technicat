@@ -1,1 +1,7 @@
-I’ve still got the greatest enthusiasm and confidence in the mission. - [HAL 9000](https://hal9000computer.wordpress.com/2017/11/22/all-hal-9000-phrases-from-the-movie/)
+My domains:
+- [fugugames.com](http://fugugames.com/)
+- [hyperbowl.rocks](http://hyperbowl.rocks/)
+- [talkdimsum.com](http://talkdimsum.com/)
+- [philipchu.com](http://philipchu.com/)
+- [pc.cafe](http://pc.cafe)
+- [technicat.com](http://technicat.com/)
