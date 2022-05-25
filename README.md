@@ -1,7 +1,1 @@
-My domains:
-- [fugugames.com](http://fugugames.com/)
-- [hyperbowl.rocks](http://hyperbowl.rocks/)
-- [talkdimsum.com](http://talkdimsum.com/)
-- [philipchu.com](http://philipchu.com/)
-- [pc.cafe](http://pc.cafe)
-- [technicat.com](http://technicat.com/)
+Currently reading Pachinko by Min Jin Lee, The Resisters by Gish Jen, and Acceptance by Jeff Van Der Meer.
