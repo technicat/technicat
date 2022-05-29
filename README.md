@@ -1,1 +1,1 @@
-Reading Pachinko by Min Jin Lee, The Resisters by Gish Jen, and Acceptance by Jeff Van Der Meer.
+Currently reading the [Black Hole Survival Guide](https://jannalevin.com/books/black-hole-survival-guide/) by Janna Levin.
