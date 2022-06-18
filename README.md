@@ -4,4 +4,4 @@ The series is enjoyable on its own, particularly with the lush visuals (I love t
 
 In fact, the series seems to be putting more emphasis on the grandson Solomon, who starts out the series in modern-day Japan (with a white American boss instead of a Japanse boss educated in America, and potential Japanese coworker love interest instead of a Korean-American fiancee), and a whole book-prequel storyline for Hansu, the yakuza who becomes involved with Sunja at the very beginning. And while I'm a fan of the actor who plays Hansu (City Hunter!), we lose the female-centric feeling of the book ("it's a woman's lot to suffer" is a recurring refrain).
 
-But whatever your feeling about the series vs. the book, it's worth watching for the history (my favorite part towards the end of the season are the interviews with elderly Koreans in Japan), and it's always nice to see Asians on TV.
+But whatever your opinion about the series vs. the book, it's worth watching for the history (my favorite part towards the end of the season are the interviews with elderly Koreans in Japan), and it's always nice to see Asians on TV.
