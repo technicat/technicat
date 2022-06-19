@@ -1,4 +1,4 @@
-Just finished watching Pachinko on Apple TV, after having some trouble getting into it initially, then reading the book and returning to the series.
+Just finished watching [Pachinko](https://en.wikipedia.org/wiki/Pachinko_(TV_series)) on Apple TV, after having some trouble getting into it initially, then reading the original [book](https://en.wikipedia.org/wiki/Pachinko_(novel)) by [Min Jin Lee](https://en.wikipedia.org/wiki/Min_Jin_Lee) and returning to the series.
 
 The series is enjoyable on its own, particularly with the lush visuals (I love the intro scene with the main cast dancing in a pachinko parlor) and excellent acting (k-drama viewers will recognize many seasoned actors). But the departure from the chronological structure of the book to time-jump Slaughterhouse 5-style, which I find interesting and it does leave things totally open content-wise for future seasons, removes Sunja from the anchoring role she plays in the book as it chronicles four generations of a Korean family in Japan.
 
