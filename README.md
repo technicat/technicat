@@ -1,1 +1,1 @@
-Finished reading [Blindsight](https://en.wikipedia.org/wiki/Blindsight_(Watts_novel)) by [Peter Watts](https://en.wikipedia.org/wiki/Peter_Watts_(author)). I'm not a fan of vampire books, but vampires in space? Sold.
+Welcome to [Gilead](https://www.npr.org/sections/health-shots/2022/06/24/1107126432/abortion-bans-supreme-court-roe-v-wade)
