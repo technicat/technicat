@@ -1,1 +1,1 @@
-Welcome to [Gilead](https://www.npr.org/sections/health-shots/2022/06/24/1107126432/abortion-bans-supreme-court-roe-v-wade)
+Catching up on [Octavia Butler](https://en.wikipedia.org/wiki/Octavia_E._Butler), just finished the [Lilith's Brood](https://en.wikipedia.org/wiki/Lilith's_Brood) trilogy.
