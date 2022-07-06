@@ -1,1 +1,1 @@
-The Slow Horses [TV adaptation](https://en.wikipedia.org/wiki/Slow_Horses) is pretty good, mostly faithful to the book, and I can see why it diverges where it does (e.g. flatulence). Great role for Gary Oldman.
+[Chapter 8 of Geometry for Programmers](https://livebook.manning.com/book/geometry-for-programmers/chapter-8) is available!
