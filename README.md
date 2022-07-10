@@ -1,1 +1,1 @@
-Good sci-fi blog, [The Ramshackle Vampire](https://ramshacklevampire.blogspot.com/), although it's ruined my rereading of [Larry Niven](https://ramshacklevampire.blogspot.com/2017/07/how-larry-niven-made-donald-trump.html).
+Excellent tea tasting at [Tea and Whisk](http://teaandwhisk.com/)
