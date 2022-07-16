@@ -1,1 +1,1 @@
-OK, the [github vR skyline](https://skyline.github.com/technicat/2021) is kind of cool
+I envy this latest generation of programmers who didn't have Hungarian notation forced on them.
