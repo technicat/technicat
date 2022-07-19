@@ -1,1 +1,1 @@
-Summer in Las Vegas makes me wonder why I moved to Las Vegas.
+The bugs here are so big, they must be sentient.
