@@ -1,1 +1,1 @@
-I envy this latest generation of programmers who didn't have Hungarian notation forced on them.
+Summer in Las Vegas makes me wonder why I moved to Las Vegas.
