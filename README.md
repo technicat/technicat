@@ -1,1 +1,1 @@
-The bugs here are so big, they must be sentient.
+The ideal length for a conversation is just up until someone says something racist.
