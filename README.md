@@ -1,1 +1,1 @@
-The ideal length for a conversation is just up until someone says something racist.
+It's one of those days where everything is broken.
