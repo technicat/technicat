@@ -1,1 +1,1 @@
-Unwarranted confidence is really overrated.
+Unwarranted confidence is highly overrated.
