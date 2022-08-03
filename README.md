@@ -1,1 +1,1 @@
-A publisher who owes me royalties just spammed me. Accounting and marketing need to coordinate.
+A writer was telling me how programmers have poor social skills, and I'm thinking, the irony.
