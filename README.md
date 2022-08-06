@@ -1,1 +1,1 @@
-I've having fun with [Gauche](https://practical-scheme.net/gauche/). It's got futures! I may try to reconstruct my old Multilisp game project.
+I'm shutting down my presence on itch.io. I like these indie game sites (also GameJolt), but the itch.io forum is full of puerile anti-gay postings,which is both high-schoolish and harmful, and their blocking feature doesn't work that well.
