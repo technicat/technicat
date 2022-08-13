@@ -1,1 +1,1 @@
-Another election, another spate of spam texts exhorting me to blindly vote along party lines. At least supply an informative link.
+[Cat Person and Other Stories](https://www.simonandschuster.com/books/Cat-Person-and-Other-Stories/Kristen-Roupenian/9781982101640) has no cats, but it's (horrorfully) hilarious.
