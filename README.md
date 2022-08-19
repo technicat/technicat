@@ -1,1 +1,1 @@
-It's so hot here.
+Best comic bookstore is [Alternate Reality](https://alternaterealitycomics.net/newsite/).
