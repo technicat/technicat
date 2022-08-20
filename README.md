@@ -1,1 +1,1 @@
-Still getting nice reviews for [Cinefex](https://apps.apple.com/us/app/cinefex/id512379220?see-all=reviews)
+Finished reading all of [Paper Girls](https://en.wikipedia.org/wiki/Paper_Girls). It's awesome.
