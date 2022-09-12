@@ -1,1 +1,1 @@
-![cat](/images/catrouter.jpg)
+![cat](/images/technicat/photo/halfcat.jpg)
