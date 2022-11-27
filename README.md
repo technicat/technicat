@@ -1,1 +1,1 @@
-![cat](/images/heartsalive/IMG_0062.jpeg)
+![cat](/images/palsnv/spoiledcat.jpg)
