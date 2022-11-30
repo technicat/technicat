@@ -1,1 +1,1 @@
-![cat](/images/palsnv/spoiledcat.jpg)
+![cat](/images/tinkers/catbag.jpeg)
