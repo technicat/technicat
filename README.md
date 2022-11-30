@@ -1,1 +1,1 @@
-![cat](/images/tinkers/catbag.jpeg)
+![cat](/images/sdcc/sdcc.jpg)
