@@ -1,2 +1,2 @@
 
-On Mastodon at [technicat.cafe](https://technicat.cafe/)
+On Mastodon at [technicat.cafe](https://technicat.cafe/@pc)
