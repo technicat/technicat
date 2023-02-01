@@ -1,2 +1,1 @@
-
-On Mastodon at [technicat.cafe](https://technicat.cafe/@pc)
+[cat](images/heartsalive/IMG_0063.jpeg)
