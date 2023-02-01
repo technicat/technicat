@@ -1,1 +1,1 @@
-[cat](/images/heartsalive/cattv.jpeg)
+[cat](/images/heartsalive/cattv.jpg)
