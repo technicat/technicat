@@ -7,3 +7,5 @@ https://www.theverge.com/2024/6/28/24188391/microsoft-ai-suleyman-social-contrac
 https://www.msn.com/en-us/news/politics/ceos-including-satya-nadella-and-sam-altman-are-lining-up-to-congratulate-donald-trump-on-his-election-victory/ar-AA1tD8Bx
 
 https://www.cnbc.com/2025/01/09/microsoft-contributes-1-million-to-trumps-inauguration-fund.html
+
+https://www.theverge.com/news/757461/microsoft-github-thomas-dohmke-resignation-coreai-team-transition
